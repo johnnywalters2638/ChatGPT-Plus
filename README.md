@@ -1,4 +1,4 @@
-# 【最新指南】轻松开通Chat GPT Plus的方法
+# 【最新指南】轻松开通ChatGPT Plus的方法
 
 ## 前言
 
